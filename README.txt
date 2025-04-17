@@ -1,4 +1,0 @@
-# Readme
-Hà Trung Thư
-N22DCVT096
-D22CQVT01-N
